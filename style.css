@@ -1,0 +1,51 @@
+
+
+
+
+.title {
+    font-family: "Bokor", system-ui;
+    font-weight: 400;
+    font-style: normal;
+}
+
+
+*{
+    font-family: "Playfair Display", serif;
+}
+
+h1{
+    text-shadow: 2px 2px 3px rgba(161, 161, 161, 0.366);
+}
+
+.link {
+    font-family: "Bokor", system-ui;
+    font-weight: 400;
+    text-shadow: 2px 2px 3px rgba(161, 161, 161, 0.366);
+    transition: .5s;
+    display: inline-block;
+}
+
+.link:hover{
+    transform: translateY(-5px);
+    color: rgb(127, 127, 127) !important;
+}
+
+
+
+/* PAGINA PERSONAGGI  */
+
+.img-char{
+    width: 100%;
+    aspect-ratio: 2/3;
+    border-radius: 10px 10px 0px 0px;
+}
+
+.btnBack{
+    display: inline-block;
+    text-decoration: none;
+    position: fixed;
+    bottom: 20px;
+    left: 20px;
+    z-index: 2;
+    font-size: 40px;
+}
