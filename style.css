@@ -8,6 +8,28 @@
     font-style: normal;
 }
 
+.subtitle{
+    font-family: "Bokor", system-ui;
+    font-weight: 400;
+    font-style: italic;
+    transition: .7s;
+    display: inline-block;
+}
+
+.subtitle:hover{
+    text-shadow: 2px 2px 20px rgba(255, 255, 0, 0.815);
+    animation:  pulse 1s infinite alternate;
+}
+
+@keyframes pulse {
+    0%{
+        scale: 1;
+    }
+    100%{
+        scale: 1.05;
+    }
+}
+
 
 *{
     font-family: "Playfair Display", serif;
@@ -52,4 +74,8 @@ h1{
 
 .cover{
     object-fit: cover;
+}
+
+.txt-shadow{
+    text-shadow: 2px 2px black;
 }
