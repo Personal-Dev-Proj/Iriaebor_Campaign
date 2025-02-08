@@ -1,4 +1,16 @@
 
+.bg-page{
+    background-image: linear-gradient(rgba(21, 21, 21, 0.7), rgba(21, 21, 21, 0.9)), url(./media/sfondo/city.webp);
+    background-position: center;
+    background-size: cover;
+    background-repeat: no-repeat;
+    min-height: 100vh;
+    border-top: 1px solid;
+}
+
+.bg-pages{
+    background: linear-gradient(214deg, rgba(10,1,1,1) 35%, rgba(7,7,7,1) 59%);
+}
 
 
 
@@ -9,9 +21,6 @@
 }
 
 .subtitle{
-    font-family: "Bokor", system-ui;
-    font-weight: 400;
-    font-style: italic;
     transition: .7s;
     display: inline-block;
 }
@@ -36,7 +45,8 @@
 }
 
 h1{
-    text-shadow: 2px 2px 3px rgba(161, 161, 161, 0.366);
+    color: whitesmoke;
+    text-shadow: 2px 2px 5px rgba(172, 0, 0, 0.7);
 }
 
 .link {
