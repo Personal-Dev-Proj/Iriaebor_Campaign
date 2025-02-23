@@ -211,3 +211,201 @@ Seguendo le istruzioni, i Custodi si recarono alla Taverna della Sedia d'Argento
 Ad attenderli, con loro immensa sorpresa, vi era nientemeno che...
 
 Il Governatore Bron.
+
+
+CAPITOLO 13
+Segreti nella Penombra 
+La porta si aprì lentamente, e lì, avvolta nel suo solito mantello scuro, stava Viserya. 
+I suoi occhi, freddi e attenti, ci scrutarono per un lungo istante prima che parlasse. 
+"Venite con me. Subito." 
+Non pose domande, né ci lasciò il tempo di farle. Solo un cenno della mano e un movimento fluido nel buio. 
+Ci scortò attraverso vicoli secondari, evitandoci sguardi indiscreti, fino a farci entrare in una porta secondaria. Era evidente che non voleva che nessuno ci vedesse. 
+All'interno un salottino privato, arredato con cura e con un'unica, evidente protagonista: 
+Un quadro imponente. 
+Nel dipinto si ergeva Teryn, il capofamiglia, circondato da quattro guardie del corpo. 
+E tra loro, un volto noto: Andil la guardia privata di Nalya. 
+Viserya si voltò verso di noi, le braccia incrociate. 
+"Nalya ha trovato qualcosa." 
+I suoi occhi si posarono su di noi, misurando le nostre reazioni. 
+"Un diario. Il diario di suo padre." 
+
+
+CAPITOLO 14
+Verità Nascoste 
+Ci sistemammo intorno al tavolo mentre Viserya srotolava i dettagli. 
+"Nalya si è allontanata dai suoi doveri dopo la morte del padre. Ma ora ha ripreso a scavare nel passato della sua famiglia." 
+Feanor aggrottò la fronte. "E il diario?" 
+Viserya annuì. "Contiene tutto ciò che Teryn voleva trasmettere a sua figlia. E tra quelle pagine compare finalmente la verità sulla Chiave di Giada." 
+Tutti trattenemmo il respiro. 
+"Era Teryn ad averla. L'ha ereditata come un oggetto di famiglia. Ma non era solo un cimelio." 
+"La Chiave proteggeva qualcosa. Qualcosa di importante. Un’arma." 
+Le parole riecheggiarono nella stanza. 
+Un’arma all’interno della città. 
+Il peso della rivelazione era tangibile. 
+Ma Viserya non aveva finito. 
+"E non è tutto." La sua voce si fece più bassa, quasi un sussurro. "Teryn non è morto per cause naturali. È stato assassinato." 
+La tensione si fece palpabile. 
+Ci voltammo tutti verso il quadro, i nostri sguardi incatenati alla figura della guardia morta. 
+"Da chi?" chiese Elyra, stringendo i pugni. 
+Viserya si voltò lentamente. 
+"Da lui." Indicò la figura accanto a Termier. 
+Un umano dal taglio di capelli corto, militare. 
+Lenis. 
+
+
+CAPITOLO 15
+Tradimento e Fuga 
+Il nome ci colpì come una lama affilata. Lenis era scomparso da mesi. E Andil, il più leale tra le guardie, si tormentava al pensiero di non poterlo inseguire. 
+Era chiaro che voleva vendetta. Ma noi avevamo altre domande. 
+"E il cubo?"  
+Viserya incrociò le braccia. "Anche quello è un'eredità. Teryn lo ricevette da Sylar, un mago… un vecchio amico e  non ha mai voluto aprirlo. Era legato a Sylarr e non voleva separarsene.” 
+I pezzi del puzzle cominciavano a incastrarsi. Ma l’immagine era ancora sfocata. 
+ 
+
+CAPITOLO 16
+Ombre in Movimento 
+Usciti dall'incontro con Viserya, camminavamo ancora scossi per le rivelazioni ricevute. Passando nei pressi del Concilio, qualcosa attirò la nostra attenzione. 
+Una figura incappucciata. 
+Sottile, rapida, stava armeggiando con la bacheca degli annunci. Elyra si irrigidì. "Qualcosa non va." La figura si voltò appena, poi scattò via. Elyra non perse tempo. 
+Le ali si spalancarono e si tuffò dall’alto, seguendo la sagoma sfuggente. Il misterioso individuo si muoveva veloce tra le strade, dirigendosi verso i quartieri poveri. Ma poi, scomparve nel nulla. 
+Elyra atterrò con grazia, ritornando alla sua forma umanoide, facendo in modo che la figura la vedesse. 
+Fu allora che la sconosciuta si rivelò. Una donna. 
+E con un sorriso sfrontato si presentò: 
+"Quattro di Quadri." 
+L’avevamo trovata. Lo scambio tra le due fu breve ma intenso. E infine, Elyra tornò da noi, la mente colma di nuove domande. 
+Nel frattempo, avevamo trovato il biglietto che la figura aveva lasciato sulla bacheca. 
+"La rivoluzione è in atto. La ricchezza è solo un’illusione. 
+Badate alle vostre tasche, voi che credete di essere intoccabili. 
+Potreste perdere tutto da un momento all’altro." 
+Era un avvertimento. 
+O forse una promessa.
+
+
+CAPITOLO 17
+Il Cubo 
+Feanor prese una decisione. Non potevamo più ignorare il cubo. 
+Prima di entrarvi, si equipaggiò con ogni protezione possibile. Ma fu tutto inutile. Appena varcò la soglia, ogni magia svanì all’istante. Il cubo lo spogliò di ogni potere. 
+E davanti a lui, nel silenzio assoluto, c’era una statua. 
+Imponente. Massiccia. Un golem di marmo bianco, inginocchiato, con un gigantesco martello stretto tra le mani. 
+E dietro di esso, una spada conficcata nel terreno, posta sopra una scalinata circolare. Feanor avanzò con cautela. A terra, una targa. 
+Le parole incise parlavano chiaro: i tentativi per entrare in possesso della spada si sarebbero attivati nel momento in cui si saliva il primo gradino. 
+Feanor si fermò un istante, analizzando il golem. Un costrutto magico. E probabilmente… si sarebbe attivato non appena avesse provato a reclamare la spada.
+
+
+
+CAPITOLO 18
+L’Ombra della Scintilla
+Giunse finalmente il giorno dell’incontro. I nostri eroi attendevano alla porta est, un luogo che avevano già ispezionato in precedenza.
+
+Nella grande piazza, una carovana fece la sua comparsa: quattro carrozze e nove persone a bordo. A capo del gruppo c'era un umano dalla carnagione olivastra e dai lunghi capelli mossi, in attesa di qualcuno.
+
+Dopo un po’, da una delle strade laterali comparvero cinque figure con un carro. Senza dire una parola, attaccarono il loro carro alle altre quattro e poi si dileguarono rapidamente.
+
+Eppure, qualcosa non andava.
+
+Gli uomini della carovana attesero ancora mezz’ora, ma era evidente che aspettavano un’altra carrozza… quella che i nostri eroi avevano sgominato.
+
+Quando si resero conto che non sarebbe mai arrivata, iniziarono a prepararsi per la partenza.
+
+
+
+CAPITOLO 19
+L’Inseguimento
+Secondo il piano stabilito nei giorni precedenti, Elaira si trasformò in un corvo per poter seguirli dall’alto senza destare sospetti. Il suo obiettivo era tenersi a distanza e guidare i compagni, piuttosto che inseguire direttamente la carrozza.
+
+Whisker, invece, prese un’altra direzione: decise di separarsi dal gruppo per seguire i cinque misteriosi individui.
+
+L'inseguimento della carovana durò diversi giorni.
+
+Si accampavano e riprendevano il cammino a intervalli regolari. Il percorso li condusse verso le montagne, fino a una gola stretta e oscura, al cui interno si trovava una foresta inquietante.
+Da sopra, Elaira scorse qualcosa di agghiacciante.
+
+L’intera foresta era impregnata di quel liquido nero, lo stesso che avevano già visto in passato. Eppure, la carovana entrò senza esitazione, come se non vedesse il pericolo o ne fosse immune.
+
+Continuando a sorvolare la zona, Elyra scoprì un’enorme fortezza, un avamposto in pietra con una palizzata massiccia, evidentemente costruita da molto tempo.
+
+A quel punto, decise di tornare indietro di corsa per avvertire il gruppo. Prima di andarsene, però, notò delle tracce:
+
+Altri carri erano passati da lì. Non tutti erano diretti verso quella fortezza. Alcuni puntavano verso sud, verso la città di Esting. Una volta riuniti, il gruppo giunse alla conclusione che affrontare la fortezza sarebbe stato troppo pericoloso:
+
+Troppi nemici. Il liquido nero rappresentava un’incognita troppo grande.
+Decisero quindi di tornare indietro e riferire tutto a Cassiopea.
+
+
+CAPITOLO 20
+Interrogatorio nei Bassifondi
+Ritrovandosi con Whisker, scoprirono che lui e Lars avevano seguito i cinque uomini misteriosi… e li avevano eliminati tutti.
+
+Tutti, tranne uno.
+
+Il loro capo era stato catturato e rinchiuso nei bassifondi, dove veniva interrogato. Dagli interrogatori emerse qualcosa di interessante:
+
+Questa gente non cercava la Chiave di Giada, ma un altro artefatto: la Scintilla Onice.
+
+Il nome non era nuovo ai nostri eroi. Ne avevano già sentito parlare mentre indagavano su Shar, la divinità dell’oscurità e dei segreti. Decisero quindi di interrogare personalmente il prigioniero.
+
+L’uomo rivelò che veniva pagato da Jordan, l’umano olivastro a capo della carovana. Con questa nuova informazione, tornarono da Cassiopea, ma la sua risposta fu chiara:
+
+Il Concilio non avrebbe agito finché la città non fosse stata direttamente minacciata. Se volevano vederci chiaro, avrebbero dovuto proseguire le indagini da soli.
+
+
+CAPITOLO 21
+Segreti Nascosti
+Guidati dall'intuito di Ysen, il gruppo decise di dividersi: Feanor e Yselda si diressero alla biblioteca, Isen ed Elyra si recarono al Tempio di Salomone.
+
+Alla biblioteca, rincontrarono il bibliotecario che avevano salvato tempo prima. Per ricambiare il loro aiuto, l’uomo concesse loro l’accesso a un’ala segreta della biblioteca.
+
+Tra gli scaffali polverosi trovarono libri incredibili, uno su tutti 'Le menzogne di Shar' e, finalmente, la verità sulla Scintilla Onice: Era una pietra, non solo un artefatto. Aveva il potere di corrompere gli oggetti. Era stata trovata da forze del Bene e nascosta in un luogo segreto.
+
+Shar e i suoi seguaci la stavano cercando.
+Inoltre, trovarono altri quattro libri con informazioni potenzialmente
+rilevanti. Segnarono i titoli, ma non poterono consultarli. 'Le famiglie di Menzoberranzan' ; ' I segreti di Myth Drannor' ; 'L'archietettura di Iriabor'; 'Gli araldi di Helm'.
+
+Nel frattempo, al tempio, Elyra e ysen parlarono con la sacerdotessa Midna. Anche lei conosceva la leggenda della Scintilla Onice e la descrisse come una reliquia pericolosissima legata a Shar.
+La Priorità: La Scintilla Onice
+
+Di fronte a tante strade possibili, dovevamo scegliere. Dopo un lungo consulto, giungemmo a una decisione: la nostra priorità era trovare la Scintilla Onice. Approfondimmo quindi tutte le nostre conoscenze, analizzando gli indizi raccolti per individuare il luogo in cui era nascosta.
+
+Alcune descrizioni sembravano coincidere con punti specifici della mappa. Decidemmo di concentrarci su di essi, scavando ancora più a fondo nelle nostre ricerche.
+
+
+
+CAPITOLO 22
+Una Lettera Inattesa
+Proprio mentre eravamo immersi nelle indagini, ricevemmo una lettera da Nalya. Ci invitava a pranzo.
+
+Prima di presentarci, Ysen e Whisker si presero del tempo per un’altra missione: cercare dei chierici.
+
+Si recarono in diversi templi, cercando di trovare qualcuno disposto a unirsi al nostro gruppo.
+
+Ma proprio mentre erano in giro, vennero attaccati.
+
+Due uomini nerboruti e un signorotto vestito di tutto punto sbarrarono loro la strada.
+
+Senza troppe cerimonie, iniziarono a picchiare Whisker. A quanto pareva, voleva indietro i suoi soldi. Sul braccio dei due scagnozzi era visibile un tatuaggio: un coltello avvolto da un serpente.
+
+Segno inequivocabile di una banda criminale. Il loro capo si presentò con un nome: Genko.
+
+Ysen riuscì a farsi spiegare la situazione da Whisker: quanto doveva esattamente? Poi ci raggiunsero…
+
+
+
+CAPITOLo 23
+Un Pranzo Diplomatico
+Ci ritrovammo davanti alla casa di Nalya. Decidemmo di non raccontare nulla per non turbarla. Il pranzo scorse tranquillo, tra chiacchiere di politica e discussioni su quale spasimante Nalya avrebbe dovuto scegliere.
+
+Elyra le suggerì di fare una domanda molto chiara ai suoi pretendenti:
+
+➡️ "Siete disposti a rappresentarmi con il mio cognome?"
+➡️ "Rinuncereste al vostro, o vorreste imporre il vostro sulla mia famiglia?"
+
+Una questione tutt’altro che secondaria, soprattutto in vista del suo ruolo nel Concilio.
+
+Alla fine del pranzo, Viserya ci fece un dono inaspettato: delle gemme di grande valore. Sarebbero state utili nelle nostre ricerche, ma ci diedero anche un’altra idea.
+
+Con quelle gemme, potevamo ripagare il debito di Whisker e salvargli la pelle. L’accordo con Genko andò a buon fine e, per fortuna, Whisker se la cavò senza altre percosse. E rimasero persino alcune gemme extra…
+
+Mentre tornavamo verso casa, due cavalli sfrecciarono accanto a noi. A cavalcarlo, Lars e Volgar, il capo dei mercenari.
+Sembravano diretti fuori città…
+
+Dove stavano andando?
