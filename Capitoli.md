@@ -390,7 +390,7 @@ Ysen riuscì a farsi spiegare la situazione da Whisker: quanto doveva esattament
 
 
 
-CAPITOLo 23
+CAPITOLO 23
 Un Pranzo Diplomatico
 Ci ritrovammo davanti alla casa di Nalya. Decidemmo di non raccontare nulla per non turbarla. Il pranzo scorse tranquillo, tra chiacchiere di politica e discussioni su quale spasimante Nalya avrebbe dovuto scegliere.
 
